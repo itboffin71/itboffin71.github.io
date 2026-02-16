@@ -4,5 +4,5 @@ Our Partners
 Our expertise has led to ongoing partnerships with leading retailers and digital companies.
 
 Contact Us
-Linkedin Profile
-Get in touch at [enquiries@itbconsultingltd.com]
+Linkedin https://www.linkedin.com/in/stephenrenshaw/
+Get in touch at enquiries@itbconsultingltd.com
